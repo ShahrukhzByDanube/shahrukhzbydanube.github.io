@@ -1,1 +1,0 @@
-# shahrukhzbydanube.github.io
